@@ -142,4 +142,4 @@ We may update this Privacy Policy from time to time. When we do, we will revise 
 
 If you have any questions or concerns about this Privacy Policy, please contact us at:
 
-**Email:** [n.nedialkov@stenik.bg](mailto:n.nedialkov@stenik.bg)
+**Email:** [nikolay.nedyalkov1998@gmail.com](mailto:nikolay.nedyalkov1998@gmail.com)
